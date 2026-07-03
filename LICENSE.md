@@ -1,4 +1,4 @@
-# 
+# Ultimate bybit trading bot templates for Mac OS | Professional bybit trading bot templates for PC Windows. Featuring momentum analysis and centralized exchange api — optimized for maximum performance.
 
 
 
